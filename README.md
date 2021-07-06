@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Snowzu
 - 👀 I’m interested in python.
-- 🌱 I’m currently learning ...
-- 💞️ I’m looking to collaborate on ...
-- 📫 How to reach me - you dont
+- 🌱 I’m currently learning nothing because of school
+- 💞️ I’m looking to collaborate on nothing
+- 📫 How to reach me - you dont.
